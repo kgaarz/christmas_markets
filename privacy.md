@@ -1,4 +1,4 @@
-# Datenschutzerklärung – Chresdag - Kölner Weihnachtsmärkte 2025
+# Datenschutzerklärung – Weihnachtsmaat - Kölner Weihnachtsmärkte 2025
 
 **Stand:** Oktober 2025  
 
